@@ -1,3 +1,3 @@
-💉 Emergency Department Nurse
-🎮 Godot Game Developer
+💉 Emergency Department Nurse  
+🎮 Godot Game Developer  
 💻 Open-Source React Developer
