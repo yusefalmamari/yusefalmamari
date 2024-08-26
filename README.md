@@ -1,1 +1,1 @@
-Collector of oddities and occasional cloud-watcher.
+Wanderer of forgotten paths and accidental inventor of nonsense.
